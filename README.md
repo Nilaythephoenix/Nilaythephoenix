@@ -8,7 +8,7 @@ The phoenix?...
 
 Ok!
 
-Im inrerested in creating a new world
+Im intrested in creating a new world
 Tailored for my own needs and desires
 This is what we all do afterall
 <!---
